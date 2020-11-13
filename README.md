@@ -1,2 +1,2 @@
 # Textinator
-</p>Sends an entire text file</p> One word at a time--------->>>WHATSAPP,FACEBOOK MESSENGER and INSTAGRAM DIRECT.
+</p>Sends an entire text file,One word at a time</p><ul><li>WHATSAPP</li><li>FACEBOOK MESSENGER</li><li>INSTAGRAM DIRECT</li></ul>
